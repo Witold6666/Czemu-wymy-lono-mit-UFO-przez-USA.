@@ -1,2 +1,3 @@
 # Czemu-wymy-lono-mit-UFO-przez-USA.
 USA wymyśliło mit UFO aby nie podróżować i nie robić biznesów. Oni wymyślili po to te mity aby ludzie nie podróżowali po kosmosie czy planecie. Harrp to 1 z cuódów USA od chorów tłumaczeniem objawieniem maryjnym. UFO to księża. Oni do mnie nie przychodzą boją się mnie porwać. Frajerów porywają. To taka policja. Jurek Magdziński ich z Deus Ex wymyślił. 
+Zdzichy karierowicze od NGO i wośp wymyślili komistów ale ludzi z mutacjami genetycznymi o polimorfizmie. Kosmici prawdziwi są inni są z tego kosmosu byli tylko badani. Mity zostały zaporzyczone aby straszyć biznesmenów strachami na lachy. Oni to gang serca NGO wośp. To są ci karierowicze. 
